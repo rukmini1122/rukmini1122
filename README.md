@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @rukmini1122
+- 👋 Hi, I’m @rukmini Mutyala
 - 👀 I’m interested in drawing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on mnc compaines
-- 📫 How to reach me learning
+- 📫 How to reach ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
